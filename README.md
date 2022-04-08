@@ -1,0 +1,5 @@
+- Ola, sou @Julio-Franca.
+- 👀 Estou interessado em migra de Analísta de logística para Analista de sistema.
+- 🌱 Estou aprendendo do basico, começando pela logica de programação.
+- 💞️ Meu sonho, estou querendo ter liberdade com o que faço e colocar minhas ideais para fluir..
+- 📫 Como me alcançar, basta pensar e alcançara...
